@@ -1,1 +1,1 @@
-# sb
+When choosing a casino, every player focuses on different criteria and details, and different nuances matter to different players. For me, it’s the availability of proven, convenient, and safe payment methods, which is why [casinos that accept flexepin](https://auspokies.net/casinos/flexepin) are the most relevant for me. And among modern Australian platforms, finding that is not a problem.
